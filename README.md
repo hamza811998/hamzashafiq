@@ -1,2 +1,0 @@
-# hamzashafiq
-Personal Website
